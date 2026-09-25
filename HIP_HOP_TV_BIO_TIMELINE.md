@@ -22,15 +22,15 @@ Hip Hop TV™ is Australia's longest-running urban music program, launched in 20
 
 ### 2010s — Growth & Expansion
 - The program expands its reach through YouTube and digital platforms.
-- Hip Hop TV™ tours with major international acts, including **Outlaws** and **Bone Thugs-n-Harmony**.
+- Hip Hop TV™ tours with major international acts, including **Outlaws** and **Bone Thugs-n-Harmony** (brought to Australia four times).
 - **2014:** ARIA Awards red carpet coverage and teaser content produced by Hip Hop TV™.
 - The show establishes itself as the go-to voice for Australian hip hop news, gigs, and culture.
 
 ### 2021–2024 — The Hiatus
 - After roughly two decades on air, Hip Hop TV™ takes a four-year break from regular production.
 
-### 2025 — The 25th Anniversary & Relaunch
-- **2025:** Hip Hop TV™ celebrates its **25th anniversary** (marking 20 years since the 2005 launch).
+### 2025 — The 20th Anniversary & Relaunch
+- **2025:** Hip Hop TV™ celebrates its **20th anniversary** (2005–2025).
 - Relaunch after the four-year hiatus with new weekly episodes.
 - Launch of Australia's first **24/7 hip hop streaming channel**, broadcasting live on YouTube, Facebook, Instagram, and Twitch.
 - New content pillars: daily Australian hip hop news, gig guides with live ticket links, reviews, and international coverage.
@@ -45,12 +45,13 @@ Hip Hop TV™ is Australia's longest-running urban music program, launched in 20
 - Continued daily news coverage of Kendrick Lamar's Australian tours, AI music, and the global scene.
 - Anthem and theme song released.
 - Weekly sneak peeks and new episode drops building toward the biggest year yet.
+- **Hip Hop TV Weekly** launched — three episodes in as of September 2026, with new content alongside the 24/7 old-content stream.
 
 ---
 
 ## The Mission
 
-Hip Hop TV™ exists to amplify Australian hip hop on a global stage — from the streets of Sydney to the world. Twenty-plus years in, it's not just a show. It's the bible of the scene.
+Hip Hop TV™ exists to amplify Australian hip hop on a global stage — from the streets of Sydney to the world. Twenty years in, it's not just a show. It's the bible of the scene.
 
 **Hip Hop TV™ — Streaming 24/7**
 https://www.hiphoptv.com.au
